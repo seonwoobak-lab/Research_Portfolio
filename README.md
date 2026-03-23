@@ -1,5 +1,5 @@
 
-# Seonwoo Bak – Research Portfolio
+# S. Bak – Research Portfolio
 
 Hello, I am **Seonwoo (Sunny) Bak**, a researcher studying climate governance and science-policy communication.
 
